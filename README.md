@@ -20,5 +20,5 @@ Mi meta es: Poder lograr entender cada uno de los temas para poder desarrollar b
 
 
 
-
+HOLA!! Soy Ariadne y a mi también me gusta ver peliculas, deberíamos de ver una juntas y tu cocinas los postres.
 
